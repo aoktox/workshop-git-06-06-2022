@@ -2,4 +2,4 @@
 
 ## Peserta Workshop
 - Agus P. (Bekasi)
-- 
+- Azhar Nur Rachmat (Cimahi)
